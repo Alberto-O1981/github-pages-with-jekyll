@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Blog blogueado
 
-I'm glad you are here. I plan to talk about ...
+La suerte favorece a la mente preparada
